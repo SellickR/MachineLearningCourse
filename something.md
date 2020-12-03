@@ -4,4 +4,6 @@ I'm an artist manager and PhD student.
 
 I really don't know what i'm doing.
 
-HELP. LOL.
+But we'll get there anyway!
+
+Keep going. 
